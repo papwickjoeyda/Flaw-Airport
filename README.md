@@ -10,9 +10,9 @@
 >
 >本人只做推荐，机场跑路不负责。
 
-八戒：[[https://bit.ly/3EYK64a](https://pse.is/9cxjg3)]
+八戒：<https://pse.is/9cxjg3>
 
-      https://x.gd/jbZUg
+<https://x.gd/jbZUg>
 
 节点全部为专线
 
